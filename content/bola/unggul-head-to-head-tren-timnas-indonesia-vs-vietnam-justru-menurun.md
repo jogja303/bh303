@@ -10,8 +10,6 @@ Vietnam sedang dalam kondisi terbaiknya di ajang ini. Mereka terbukti masih koko
 
 Sedangkan Timnas Indonesia masih berada di posisi juru kunci dengan torehan satu poin. Hasil dari lima kekalahan dan sekali bermain imbang.
 
-***[Baca Juga: Shin Tae Yong Waspadai Vietnam yang Bisa Merepotkan Timnas Indonesia](https://www.idntimes.com/sport/soccer/ilyas-listianto-mujib-1/shin-tae-yong-waspadai-vietnam-yang-bisa-merepotkan-timnas-indonesia)***
-
 ## 1. Timnas Indonesia masih unggul secara statistik, tapi ...
 
 ![Unggul Head to Head, Tren Timnas Indonesia vs Vietnam Justru Menurun](https://cdn.idntimes.com/content-images/post/20191210/antarafoto-fina-timnas-u22-indonesia-melawan-vietnam-101219-sgd-1-a1eeda1b050d787feaeb9520d942c5f9.jpg)Pemain Vietnam Doao Van Hau mencetak gol ke gawang Indonesia pada final SEA Games 2019 (ANTARA FOTO/Sigid Kurniawan)
