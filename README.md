@@ -141,3 +141,7 @@ Originally based on [Henry Desroches' nuxt-netlify-cms-starter](https://github.c
 
 - > I can’t get Git LFS to run correctly on Netlify
 - Make sure that you have in your [Netlify build settings](https://app.netlify.com/sites/YOUR_NETLIFY_SITE_SLUG/settings/deploys#environment-variables), set the environment variable `GIT_LFS_ENABLED` : `true`. Then also make sure that Netlify LM is setup as [their docs](https://docs.netlify.com/large-media/setup/) specify.
+
+[Slot Online](https://la-am.com/)
+[Slot Online Terpercaya](https://chokonikki.com/)
+[Game Slot Online](https://4635kk.org/)
